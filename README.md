@@ -9,7 +9,7 @@ Credits to afkvido, here's their profile, https://github.com/ProdigyPNP/ProdigyM
 
 Please do not use this daily, as it could result in a ban. If you must use it, do so no more than 1-3 times per 2 days. Please also understand that by using these hacks, you are acknowledging that you are using them for fun and not to ruin the experience of other players by hacking to win battles.
 
-Tutorial on how to get PHEx working if it isn't working! 1: Download the "Extension" file. 2: Depending on what browser you're using, type in edge://extensions or chrome://extensions. Also, make sure the grammar is correct, I'm sure I spelled it wrong. 3: Unload the file and select the "Extension" file. 4: It should put PHEx in, and it should work. Have a good time using the hacks!
+Tutorial on how to get PHEx working if it isn't working! 1: Download the "Extension" file. 2: Depending on what browser you're using, type in edge://extensions or chrome://extensions. Also, make sure the grammar is correct, I'm sure I spelled it wrong. 3: Unload the file and select the "Extension" file. 4: It should put PHEx in, and it should work. Enjoy using the hacks!
 
 Side note: some hacks in PHEx can damage your account and make it inacessible. i seen it happen to alot of people.
 
@@ -37,65 +37,9 @@ SUMMARY OF HACK TOS!! This hack is used to help Prodigy fix the hacks that they 
 
 Youtube Tutorials
 
-How to hack Prodigy after discontinuation! 
+How to hack Prodigy after discontinuation.
 https://www.youtube.com/watch?v=JTqk1X19tvE&t=3s
 
-idk haha
+If the owner of these cheats wants this page taken down, find me on Discord.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-If your the creator of the files please contact me here.  Gmail- Cacachikcikcik@gmail.com
-
-Don't ask why its like that.
+Discord User: the0neandonlysaeitoshi
